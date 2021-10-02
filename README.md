@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @furtively
-- 👀 I’m interested in Cybersecurity
+- 👀 I’m interested in Audi, Hacking, and Shoes.
 - 🌱 I’m currently learning Cybersecurity
 - 💞️ I’m looking to collaborate on creating the future
 - 📫 How to reach me email: admin@convictedfelony.org
